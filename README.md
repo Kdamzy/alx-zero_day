@@ -1,2 +1,2 @@
-doing hard things
+doing hard thing
 
